@@ -51,5 +51,6 @@ or connect with me on
 
 Linkedin:
  http://www.linkedin.com/in/karthiksk1693
+ 
 Explore my portfolio to see how I have implemented my analysis skills to find out insights and how I can bring the same value to your esteemed organizations projects.
 
